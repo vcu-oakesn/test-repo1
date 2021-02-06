@@ -8,4 +8,4 @@
 
 Adding a change for the live demo in class.
 
-Noel's fun fact for the day: did you know an ostrich's eye is bigger than its head?
+Noel's fun fact for the day: did you know an ostrich's eye is bigger than its brain?
